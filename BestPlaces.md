@@ -16,7 +16,7 @@
 
 ## 3- Best places in India:
 
-- South india , Karala
+- South india , Karala (Gods own country)
 - North India golden TRangel, Agra, Jaipur and Varanasi
 - East India , KOlkata
 - West India, Goa - Beaches, Sunsets and Crazy Nights
