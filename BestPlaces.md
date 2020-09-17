@@ -13,6 +13,7 @@
 
 
 
+
 ## 3- Best places in India:
 
 
@@ -20,9 +21,8 @@
 
 
 
+
 ## 4- Best PLaces in Costa Rica:
-
-
 
 
 
